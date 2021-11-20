@@ -4,3 +4,4 @@ Public veya ekip sunucularında kullanabileceğiniz hem moderasyon hemde kayıt 
 
 - arkadaslar 3 gün demisim 22 gün olmus üşeniom valla amk
 - beyler az kaldı hadi star atın lo amk bosuna emek verip paylasmıyım
+- 2 ay geçmiş dahada beklemeyin bence :d bişey olursa ig: mercyxrd
